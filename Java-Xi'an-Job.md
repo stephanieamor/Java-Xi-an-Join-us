@@ -24,6 +24,6 @@ Java高级开发工程师
 
 
 
-简历投递：2569808887@qq.com / stephanie.wong@yeahmobi.com
+简历投递：stephanieamor.w@gmail.com
 
 Wechat:stephanieamor
